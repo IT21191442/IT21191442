@@ -11,7 +11,7 @@
 
  - ⚡ Fun fact I am Funny
 
- - 📫 How to reach me **sandeeparathnayaka20@gmail.com**
+ - 📫 How to reach me **sandeeparathna@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
